@@ -11,6 +11,3 @@ I wish I had a better voice
 That sang some better words
 
 
-I wish I found some chords
-In an order that is new
-I wish I didn't have to rhyme
